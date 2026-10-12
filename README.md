@@ -1,4 +1,6 @@
 
+<p align="center"> People who simp for PM Osamu Dazai, DNI. He's a minor, you freaks. </p>
+
 <p align="center">
 <img src="https://i.pinimg.com/736x/fa/13/f3/fa13f3d477e9231c1b0a8b6ab5245806.jpg"width="450" />
 </p>
